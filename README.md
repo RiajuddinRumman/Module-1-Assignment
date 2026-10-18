@@ -1,2 +1,2 @@
 I'm MD. RIAJUDDIN RUMMAN.
-I'm a studnet of Ostad Batch 13.
+I'm a student of Ostad Batch 13.
